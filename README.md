@@ -45,3 +45,5 @@ __pony town boundaries__
 ✞
 
 **"it's too late for me now, i am altered"**
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ix4aqa0o51mvtn2nkv3qsr48o&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
