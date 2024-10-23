@@ -16,15 +16,15 @@ __pony town boundaries__
 
   __what im not okay with:__
 
-    **BASIC CRITERIA:**
+  **BASIC CRITERIA:**
 
       homophobic , transphobic , racist , xenophobic , forcing religion , being weird about skin , skin stealers , proshippers
 
-    **FANDOMS:**
+  **FANDOMS:**
 
       DSMP , Danganronpa , YanSim , Any Viviziepop Content , and possibly others (if i don't like the fandom, i won't int/respond)
 
-    **OTHER:**
+  **OTHER:**
 
       __don't assume relationships__ .. that's gross and fucking weird
 
@@ -32,13 +32,13 @@ __pony town boundaries__
 
       users __under the age of 16__ interacting with me. (current friends are okay)
 
-  **what im okay with:**
+  __what im okay with:__
 
       __i may be antisocial around new ppl__ ;; but please int !
 
       depending on skin ;; __c+h r okay__
 
-      __whisps/boops__ ;; gets attention faster
+      __whisps!!__ ;; gets attention faster
 
       __ANY cos of my favs__ ;; i will latch onto you so fast /hvyj
 
