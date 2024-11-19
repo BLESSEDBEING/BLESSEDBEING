@@ -4,7 +4,7 @@
 
 ✞
 
-**DEV / KIRA / LOUIS / SOAP / BILLY**
+**DEV / KIRA / HEROBRINE / SOAP / BILLY**
 
   __short interest summary:__
 
